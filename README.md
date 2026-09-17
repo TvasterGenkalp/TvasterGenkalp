@@ -119,8 +119,9 @@ https://github.com/TvasterGen
 ## 📍 Location
 
 **Tvaster Genkalp Pvt. Ltd.**  
-IIT Madras Research Park  
-Chennai, Tamil Nadu, India
+C604-605, 6th Floor, C-Block, IIT Madras
+Research Park, Kanagam Rd, Tharamani,
+Chennai, Tamil Nadu - 600113
 
 ---
 
