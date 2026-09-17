@@ -111,9 +111,6 @@ https://tvastergen.com/
 **LinkedIn:**  
 https://www.linkedin.com/company/tvaster-genkalp/
 
-**GitHub:**  
-https://github.com/TvasterGen
-
 ---
 
 ## 📍 Location
